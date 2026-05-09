@@ -1,4 +1,4 @@
-
+Obsidian for macOS top Tool - focus mode and goal tracking offers the most advanced Obsidian for macOS tool, with focus mode and goal tracking. Ideal for professionals.
 
 
 
